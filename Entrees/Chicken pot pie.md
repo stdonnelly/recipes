@@ -23,9 +23,8 @@ Makes 1 9-inch pie.
 4. Add flour, salt, and pepper.
 5. Add chicken broth and milk; Cook and stir until thickened.
 6. Add chicken and mixed vegetables.
-7. Put mixture into bottom pie crust and top with top pie crust. Cut slits in top pie crust.
+7. Put mixture into bottom pie crust and top with top pie crust. Cut slits in top pie crust. Apply foil to edges to prevent burning.
 8. Bake 30-40 minutes.
-9. For the last 15-20 minutes, cover edges with foil.
 
 ## References
 
